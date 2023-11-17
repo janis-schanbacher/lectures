@@ -9,6 +9,8 @@ Formulate this as rich text in 3 sentences. Then make a businessplan, and a road
 - create input for a logo for this, probably use the name fusionMarketCircus
 - reformulate this as input for an ai picture geneerator
 - write this as markdown: Gofundme Campaign Pitch: ...
+- make a short pitch for LinkedIn to gather partners, clients and donators that send money to PayPal.me/teamtable or buy something from my wishlist. Affiliate Partners, Clients for personal Webshops, Blogs and Affiliate Marketing sites also welcome. I am open to work also as Visionary, Web developer, Networker, Coach, Consultant, Marketer, Campaign Face, Musician, Speaker, Reporter, QA, Leader, CEO, Creative director, Actor, business partner, tester, blogger, influencer, Manager, Contact man, business man. 
+Please Keep it Simple Stupid (KISS). Make it a pitch that is both suitable for children as well as for experienced businessman and woman of different cultures and ages. 
 
 
 
